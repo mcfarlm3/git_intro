@@ -1,1 +1,2 @@
-Eric Ianni
+Michelle McFarland
+mcfarlmi@oregonstate.edu
